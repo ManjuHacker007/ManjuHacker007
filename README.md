@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @ManjuHacker007 ( Full Name: Manjunath R Yadawad).
 - 👀 I’m interested in React JS Frontend development
 - 🌱 I’m currently learning JavaScript & React JS
+- I'm currently working as a React JS - front-end developer from 2 years.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me just type and search this name in any social media - (Manjunath R Yadawad) like (Facebook, Instagram etc).
 - 😄 Pronouns: He/Him.
