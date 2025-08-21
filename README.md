@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me just type and search this name in any social media - (Manjunath R Yadawad) like (Facebook, Instagram etc).
 - 😄 Pronouns: He/Him.
-- ⚡ Fun fact: Chess Player
+- ⚡ Fun fact: Chess Player also content creator (gaming on ps5 etc)
 
 <!---
 ManjuHacker007/ManjuHacker007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
